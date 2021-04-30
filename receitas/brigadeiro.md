@@ -11,7 +11,7 @@
 
 - Em uma panela funda, acrescente o leite condensado, a margarina e o chocolate em pó.
 - Cozinhe em fogo médio e mexa até que o brigadeiro comece a desgrudar da panela.
-- Deixe esfriar e [faça pequenas bolas](https://blog.tudogostoso.com.br/dicas-de-cozinha/dicas-para-docinhos-perfeitos/) com a mão passando a massa no chocolate granulado.
+- Deixe esfriar e faça pequenas bolas com a mão passando a massa no chocolate granulado.
 
 
 
